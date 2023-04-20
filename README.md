@@ -18,3 +18,6 @@ and helping them achieve success using your product or service, you
 can delight your customers and turn them into a growth engine for your
 business. And this even helps to make aware of the product to the
 customer at low cost
+
+You can find the excel file in the drive link for reference:
+https://drive.google.com/drive/folders/1VG1e8paV-D8W7YJNjL_6TcPIaygmcYIa?usp=share_link
